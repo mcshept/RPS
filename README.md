@@ -1,1 +1,1 @@
-POV: You have too much time ¯\_(ツ)_/¯
+POV: You have too much time 🤷‍♂️
